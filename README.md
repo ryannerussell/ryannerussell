@@ -1,5 +1,5 @@
 # 𝐀𝐛𝐨𝐮𝐭 𝐌𝐞 ⋆.˚
-Hello there! My Name is Ryanne Russell, and I am an undergraduate computer science student at Texas Tech University. I am currently working on uploading more of my projects here. 
+Hello there! My name is Ryanne Russell, and I am an undergraduate computer science student at Texas Tech University. I am currently working on uploading more of my projects here. 
 
 
 ## ⋆.˚ 𝐒𝐨𝐜𝐢𝐚𝐥𝐬 
